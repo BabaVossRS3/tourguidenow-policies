@@ -51,7 +51,7 @@ We may update this privacy policy at any time. We will notify you of significant
 ## Contact Us
 
 For privacy questions or data deletion requests, contact:
-**[your-email@example.com]**
+**[tourgo2026@gmail.com]**
 
 ---
 
